@@ -1,2 +1,11 @@
 ## E
 * Esmeralda
+* Eurika
+* Euridika
+* Emmy
+* Ephiopka
+* Estrella
+* Enigma
+* Esterhazi
+* Eiwa
+* Eclips
